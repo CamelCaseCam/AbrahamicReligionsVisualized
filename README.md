@@ -13,3 +13,4 @@ In 632 CE, Sunni and Shia Islam split because of disagreements over who would be
 
 In July 657, Kharijite Islam splits from Shia Islam when Ali ibn Abi Talib agrees to arbitration with his rival over who would become the next caliph
 
+While Ibadi Islam evolved from Kharijite Islam, they are far more moderate and are considered distinct
